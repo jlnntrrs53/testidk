@@ -9,9 +9,9 @@
 
 - 🤝 I’m looking for help with **idk**
 
-- 👨‍💻 All of my projects are available at [404 Not Found](404 Not Found)
+- 👨‍💻 All of my projects are available at [404 Not Found]
 
-- 📝 I regularly write articles on [AO3 kek](AO3 kek)
+- 📝 I regularly write articles on [AO3 kek]
 
 - 💬 Ask me about **nothing**
 
